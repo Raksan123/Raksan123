@@ -1,0 +1,1 @@
+Hello i am Raksan.I am a student.i live in chapainawabganj,Bangladesh.i am very muc interested in coding and programming.i have learnt all the basics of python.I like to research.Now i want to learn about AI.I want to work with the tech giants.THANKS!
